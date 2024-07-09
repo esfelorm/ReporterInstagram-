@@ -16,3 +16,12 @@ This reporter has different and updated methods for Instagram!
 
 
 Soon I will put a free version of this tool in the <a href="https://t.me/esfelurm"> Telegram channel</a>, but the vip of this tool is more powerful! 
+
+
+<b> This tool is designed so that your account will not be banned! 
+
+`To buy tools, send a message to the Telegram admin`
+
+```
+ID Admin Telegram: @Serverkill3r
+```
